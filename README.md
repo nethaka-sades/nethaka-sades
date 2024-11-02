@@ -6,9 +6,9 @@ Collaborations: If you're working on interesting projects, let’s connect!
 Freelance: Available for freelance projects in web development
 
 ## 📫 How to reach me:
-[My LinkedIn](www.linkedin.com/in/nethaka-de-saram)
+My LinkedIn :- www.linkedin.com/in/nethaka-de-saram
 
-[Email Me](sades.dev01@gmail.com)
+Email Me :- sades.dev01@gmail.com
 
 
 
